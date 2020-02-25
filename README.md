@@ -6,3 +6,5 @@ https://youtu.be/K4sA4Itrca0?t=114
 https://youtu.be/K4sA4Itrca0?t=158
 * why there are many starting points
 https://youtu.be/C-V1uXeyGmg?t=368
+* why blue?
+https://youtu.be/LE2v3sUzTH4?t=292
