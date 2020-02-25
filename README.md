@@ -8,3 +8,4 @@ https://youtu.be/K4sA4Itrca0?t=158
 https://youtu.be/C-V1uXeyGmg?t=368
 * why blue?
 https://youtu.be/LE2v3sUzTH4?t=292
+ - does it relate to Rayleigh scattering?
